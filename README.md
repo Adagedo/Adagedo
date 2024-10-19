@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Adagedo
-- A softwear developer.
+- Innovative software developer.
 - 📫 You can reach me via my email, adagedosolomon52@gmail.com or adagedos@gmail.com 
   
 
